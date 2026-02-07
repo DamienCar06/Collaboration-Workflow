@@ -1,2 +1,2 @@
-Team Name: Damien & Christian
+Team Name: damien & christian
 Team Member: cac620 & iey18
